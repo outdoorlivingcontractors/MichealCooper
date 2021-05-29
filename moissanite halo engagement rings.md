@@ -17,7 +17,7 @@ Having your fine jewelry like unique moissanite engagement rings professionally 
 
 Know what stones and metals you're working with while you're washing your fine jewelry at home. You should never use harsh chemicals to clean delicate jewelry because they can cause corrosion to the settings. 
 Instead, soak most fine jewelry in a tub of warm water with dishwashing soap to clean it. Scrub gently with a soft toothbrush, then air dry. Finally, scrub the pearls with a smooth makeup brush.
-When you use a quality cleaning solution to clean your fine jewelry at home, make sure you know what kind of metal your ring is built of, whether it's silver, gold, or platinum. Since each metal is different, it can respond accordingly to other cleaning materials. Take your moissanite halo engagement rings to a skilled jeweler if you're uncertain about the metal kind. 
+When you use a quality cleaning solution to clean your fine jewelry at home, make sure you know what kind of metal your ring is built of, whether it's silver, gold, or platinum. Since each metal is different, it can respond accordingly to other cleaning materials. Take your [moissanite halo engagement rings](https://diamondrensu.com/collections/engagement-rings/products/14k-gold-cushion-halo-split-shank-moissanite-diamond-engagement-ring) to a skilled jeweler if you're uncertain about the metal kind. 
 
 ![Engagement-Rings_2000x](https://user-images.githubusercontent.com/85026274/120078145-a25f9800-c0cb-11eb-889e-e2c56ad40514.jpg)
 
