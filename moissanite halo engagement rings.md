@@ -1,31 +1,30 @@
-**How Should You Take Care of Your Fine Jewelry?**
+Treat Your Outdoor Space with a Designer Makeover 
 
-When you buy fine jewelry, you want it to last a lifetime, and rightly so. So, here are a few pointers on how to look after your fine jewels:
+You may have a lush garden with lots of space for parties or a small decent patio, a good inspirational design can help make your outdoor space from mediocre to breathtakingly beautiful. In the summer, your outdoor land can become an extension of your home for entertaining and garden grilling. It can be just like you have an extra outdoor living room. You can even turn the outdoors into a picture-perfect landscape garden.
 
-**1.	When in doubt, take it off.**
+Let us pick out some of the fabulous ideas for outdoor designs:
 
-Quality jewelry, particularly engagement and wedding rings, is made to be worn every day. Moissanite, for example, has a hardness rating of 9.25 on the MOHs scale, indicating that it is resistant to scratching and everyday wear and tear. On the other hand, the hardest stone on the planet, diamond, is rated a ten on the MOHs hardness scale. Few gemstones, such as emeralds and sapphires, are more prone to destruction than others, and some metals are harder than others.
-Some malleable metals, like harder gemstones, are more likely to maintain corrosion from everyday use. Remove the gold rings or bracelets when engaging in manual labor tasks, such as DIY home ventures or working out, to prevent bruises or dents. Leave your fine jewels at home if you intend on enjoying a nice day by the beach. 
+● Tapestry: Treat your outdoor walls with the same attention as you do for indoor walls. Hang some eye-catchy artwork or tapestry. A wall-hanging can sometimes upgrade an outdoor space, making it unique and pretty.
 
-![banner-01-sdfhsdf-scaled](https://user-images.githubusercontent.com/85026274/120078127-92e04f00-c0cb-11eb-97c4-d593f0cfb170.jpg)
+● Heater or Fireplace: If you live in locations where it is mostly cold and chilly, you can expand your outdoor climate with some warmth and heat. You can design outdoors with a propane heater. You may also opt for a cozy outdoor fireplace and throw in a few rugs by the bench to snuggle and unwind. 
 
-**2.	Properly clean your fine jewelry once per year.**
 
-Having your fine jewelry like unique moissanite engagement rings professionally polished at least once a year will help prolong the life of your piece and keep the shine as bright as the day you purchased it. In addition, you should go for at least two professional cleaning visits a year if you wear your jewel daily, such as moissanite halo engagement rings. 
+● Native Flowers: If you are a flower person, then build a wondrous yard by designing a gorgeous garden full of pretty native flower plants. Introduce dazzling colors and attract birds and bees to pollinate in your yard. 
 
-**3.	Use the proper jewelry cleaner for the metal and gemstone you're working with.**
 
-Know what stones and metals you're working with while you're washing your fine jewelry at home. You should never use harsh chemicals to clean delicate jewelry because they can cause corrosion to the settings. 
-Instead, soak most fine jewelry in a tub of warm water with dishwashing soap to clean it. Scrub gently with a soft toothbrush, then air dry. Finally, scrub the pearls with a smooth makeup brush.
-When you use a quality cleaning solution to clean your fine jewelry at home, make sure you know what kind of metal your ring is built of, whether it's silver, gold, or platinum. Since each metal is different, it can respond accordingly to other cleaning materials. Take your [moissanite halo engagement rings](https://diamondrensu.com/collections/engagement-rings/products/14k-gold-cushion-halo-split-shank-moissanite-diamond-engagement-ring) to a skilled jeweler if you're uncertain about the metal kind. 
 
-![Engagement-Rings_2000x](https://user-images.githubusercontent.com/85026274/120078145-a25f9800-c0cb-11eb-889e-e2c56ad40514.jpg)
 
-**4.	Storage is crucial.**
+● Table Arrangements: If you love to dine and eat outdoors amidst natural surroundings, then create a twin dining outdoor room with comfy chairs and a sturdy table with umbrella holders. Then, you can live your dream and dine outside in all seasons. 
 
-The way you store your fine jewelry will help you have items that are as stunning as the day you purchased them for a long time. 
-Since hard stones like moissanite and diamond will destroy other jewelry pieces, don't have all of your jewelry in one location. Instead, keep your fine jewelry in a compartmentalized case or cabinet with a fabric lining. 
 
-**5.	Obtain insurance for it.**
+● Give a Border: You can define a boundary and fill a large outdoor space with specific columns. You can use some designer outdoor rugs that give a character to your outdoor area. You can buy customized outdoor rugs in coarse or soft luxurious material of your choice. You can place two or more wickets or reclining chairs to sit and relax. 
 
-Getting insurance for your fine jewels like unique moissanite engagement rings will help you avoid the stress of missing your prized possessions. This is also available as an add-on to the homeowner's policy, or some companies specialize in fine jewelry insurance.
+
+● Oasis Landscape: You can think about landscape designing adding cute fencing or latticework to extend your outdoor spaces and the whole scenario looks lush. You may plant slow trailing vines such as climbing roses or Chinese wisteria. If you want a modern contemporary look, try adding boxwood hedges or dense cedar trees. 
+
+
+● A Kitchen Extension: Many homeowners feel cramped with small stuffy indoor kitchens. If you have the same issue, then you can convert your outdoors into a big kitchen with an outdoor grill, sink area, and burners. You can cook without being uncomfortable even in sweltering temperatures.
+
+
+● Design a Greenhouse: You can fill your backyard or balcony area with various plants and bushes to make it a greenhouse. You can also plant a selective herb garden with basil, rosemary, sage, and lavender to snip and prepare a delicious meal.
+You can find more ideas online. It is best to choose a unique theme and not try to incorporate everything into your outdoor space. For a more honest assessment, call on [outdoor living spaces contractors](https://expertdc.com/outdoor-living-spaces/) and plan your way to a fantastic outdoor environment.
